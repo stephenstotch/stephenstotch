@@ -1,1 +1,1 @@
-<img src=”https://files.catbox.moe/slcwom.jpeg”>
+![](https://files.catbox.moe/slcwom.jpeg)
