@@ -1,3 +1,3 @@
-![](https://hit.yhype.me/github/profile?user_id=139292958)
+![](https://komarev.com/ghpvc/?username=stephenstotch&color=red)
 ![](https://files.catbox.moe/slcwom.jpeg)
 (THIS IS NOT STAN MARSH THIS IS MAJKL KRSTOV STOTCH)
