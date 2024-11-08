@@ -3,4 +3,4 @@
 (THIS IS NOT STAN MARSH THIS IS MAJKL KRSTOV STOTCH)
 <br>
 <br>
-dni if you ship the south park kids
+<b>[READ MY NEW CARRD I'M SO PROUD OF IT!!](https://stephen-stotch.carrd.co)</b>
