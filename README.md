@@ -1,6 +1,6 @@
 ![](https://komarev.com/ghpvc/?username=stephenstotch&color=red)
 <br>
-<h1>100% CERTIFIED FAGGOT</h1>
+100% CERTIFIED FAGGOT
 <br>
 ![](https://files.catbox.moe/slcwom.jpeg)
 (THIS IS NOT STAN MARSH THIS IS MAJKL KRSTOV STOTCH)
