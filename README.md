@@ -3,6 +3,7 @@
 100% CERTIFIED FAGGOT
 <br>
 ![](https://files.catbox.moe/slcwom.jpeg)
+![](https://files.catbox.moe/3kh4de.png)
 (THIS IS NOT STAN MARSH THIS IS MAJKL KRSTOV STOTCH)
 <br>
 <br>
