@@ -15,5 +15,6 @@
 <br>
 <b><p align="center">do NOT ask me to help with your party yall r so annoying istg</p></b>
 <br>
-<br>
 <p align="center">ALSO! im mike wheeler irl (NOT A D/A) and have been since june 2022. idgaf about doubles just dont rub it in my face</p>
+<br>
+<p align="center">stephandy dni PLEASE</p>
