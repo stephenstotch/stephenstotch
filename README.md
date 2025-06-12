@@ -10,7 +10,7 @@
 ![](https://files.catbox.moe/3kh4de.png)
 <br>
 <br>
-<b>[carrd](https://stephen-stotch.carrd.co)</b>
+<p align="center"> <b> <a href="https://stephen-stotch.carrd.co">carrd</a> </b> </p>
 <br>
 <br>
 <b><p align="center">do NOT ask me to help with your party yall r so annoying istg</p></b>
