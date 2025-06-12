@@ -1,17 +1,13 @@
-![](https://komarev.com/ghpvc/?username=stephenstotch&color=red)
-<br>
+<p align="center"> <img src="https://komarev.com/ghpvc/?username=stephenstotch&color=red"> </p>
 <br>
 <p align="center">FYI: i am a NONSHARING stephen stotch selfshipper and have been since 06/26/23, and i will continue to be for a very long time. i am THE stephen of pony town</p>
-<br>
 <br>
 <p align="center">me and bae 🫶🏻 ↓ ↓ (art by me)</p>
 <br>
 
 ![](https://files.catbox.moe/3kh4de.png)
 <br>
-<br>
 <p align="center"> <b> <a href="https://stephen-stotch.carrd.co">carrd</a> </b> </p>
-<br>
 <br>
 <b><p align="center">do NOT ask me to help with your party yall r so annoying istg</p></b>
 <br>
