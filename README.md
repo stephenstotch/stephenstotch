@@ -11,7 +11,9 @@
 <br>
 <b><p align="center">do NOT ask me to help with your party yall r so annoying istg</p></b>
 <br>
-<p align="center">ALSO! im mike wheeler irl (NOT A D/A) and have been since june 2022. idgaf about doubles just dont rub it in my face</p>
+<p align="center">ALSO! im mike wheeler irl (NOT A D/A) and have been since june 2022. idgaf about doubles just dont rub it in my face. im also a fictkin of stan marsh and kevin spencer (yes, actually)</p>
+<br>
+<p align="center">safe server ONLY because i am banned from the 18+ server (i said i was 2 as a joke)</p>
 <br>
 <p align="center">stephandy dni PLEASE</p>
 <br>
