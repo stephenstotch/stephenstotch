@@ -25,3 +25,5 @@
 <p align="center">stephandy dni PLEASE</p>
 <br>
 <p align="center"><img src="https://files.catbox.moe/wwjkwe.png"></p>
+<br>
+<p align="center"><img src="https://files.catbox.moe/lyh4ha.png"></p>
