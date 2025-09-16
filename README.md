@@ -3,9 +3,6 @@
 
 <p align="center"> <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31ygin2226l7mc6jtqwyftlv6zoa&cover_image=true&theme=natemoo-re&show_offline=true&background_color=121212&interchange=false&bar_color=df4126&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)"> </p>
 
-<p align="center"> <img src="https://lastfm-recently-played.vercel.app/api?user=stephensloverr&count=7&show_user=always&header_style=compact_stats_only&bg_color=1F1F1F&width=320)](https://www.last.fm/user/stephensloverr)"> </p>
-
-
 <br>
 <p align="center">FYI: i am a NONSHARING stephen stotch selfshipper and have been since 06/26/23, and i will continue to be for a very long time. i am THE stephen of pony town</p>
 <br>
