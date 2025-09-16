@@ -1,7 +1,7 @@
 <p align="center"> <img src="https://komarev.com/ghpvc/?username=stephenstotch&color=red"> </p>
 <br>
 
-<p align="center"> <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31ygin2226l7mc6jtqwyftlv6zoa&cover_image=true&theme=natemoo-re&show_offline=true&background_color=121212&interchange=false&bar_color=df4126&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)"> </p>
+<p align="center"> <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31ygin2226l7mc6jtqwyftlv6zoa&cover_image=true&theme=default&show_offline=false&background_color=5a1c00&interchange=false&bar_color=ff4015&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile"> </p>
 
 <br>
 <p align="center">FYI: i am a NONSHARING stephen stotch selfshipper and have been since 06/26/23, and i will continue to be for a very long time. i am THE stephen of pony town</p>
