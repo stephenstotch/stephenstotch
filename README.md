@@ -15,8 +15,7 @@
 <br>
 <p align="center">me and my man ↓ ↓ (art by me)</p>
 <br>
-
-![](https://files.catbox.moe/3kh4de.png)
+<p align="center"><img src="https://files.catbox.moe/rgch7o.png"></p>
 
 <br>
 <p align="center"><img src="https://files.catbox.moe/wwjkwe.png"></p>
