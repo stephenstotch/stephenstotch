@@ -3,7 +3,7 @@
 
 <p align="center"> <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31ygin2226l7mc6jtqwyftlv6zoa&cover_image=true&theme=default&show_offline=false&background_color=5a1c00&interchange=false&bar_color=ff4015&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile"> </p>
 <br>
-<p align="center">im friendly! dont be afraid to c+h or say hi. people often say they feel intimidated by me but you dont need to, im not mean! however if youre under 16 iwc</p>
+<p align="center">im friendly! dont be afraid to c+h or say hi. people often say they feel intimidated by me but you dont need to, im not mean! however if youre under 16 iwc. i follow my friends and people i want to be friends with :p</p>
 <br>
 <p align="center"> <b>STEPHANDY DNI</b> </p>
 <br>
