@@ -5,6 +5,9 @@
 <br>
 <p align="center">im friendly! dont be afraid to c+h or say hi. people often say they feel intimidated by me but you dont need to, im not mean! however if youre under 16 iwc. i follow my friends and people i want to be friends with :p</p>
 <br>
+<p align="center">if you see me in a skin that looks like it could be adult stan it is NOT. here is
+<a href="https://files.catbox.moe/nzj7ct.png">MORE INFO</a> 
+<br>
 <p align="center"> <b>STEPHANDY DNI</b> </p>
 <br>
 <p align="center"><img src="https://files.catbox.moe/qzyin0.png"></p>
