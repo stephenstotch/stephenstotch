@@ -12,9 +12,7 @@
 <br>
 <p align="center"><img src="https://files.catbox.moe/qzyin0.png"></p>
 <br>
-<p align="center">FYI: i am a NONSHARING stephen stotch selfshipper* and have been since 06/26/23, and i will continue to be for a very long time. i am THE stephen of pony town</p>
-<br>
-<h6><b>*</b> im not just a selfshipper, i genuinely see myself in a real life relationship with him. i dont just ship myself with him. i call myself a selfshipper because its the most understandable term. i take this extremely seriously.</h6>
+<p align="center">FYI: i am in a romantic relationship with stephen stotch from south park (not a yume /srs) and have been since 06/26/23, and i will continue to be for a very long time. i am THE stephen of pony town</p>
 <br>
 <p align="center">me and my man ↓ ↓ (art by me)</p>
 <br>
