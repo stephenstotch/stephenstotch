@@ -10,4 +10,5 @@
 <br>
 <b>i do not consider the newest sp episode to be canon due to how grossly out of character they had my man be in it</b>
 <br>
+<br>
 just as a warning, i have borderline personality disorder and can be rather unstable at times. if my display name says iwc/dniuc or anything similar please be cautious! thank you ^_^
